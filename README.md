@@ -1,4 +1,6 @@
 ### Hi there 👋
+
+I will post random stuff here, from time to time.
 Give me a follow!
 
 <!--
