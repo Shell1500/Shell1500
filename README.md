@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I will post random stuff here, from time to time.
+I will post random stuff here, from time to time. <br>
 Give me a follow!
 
 <!--
